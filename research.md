@@ -1,6 +1,6 @@
 
 
-# ❗ JOB REASEARCH
+# ❗ JOB RESEARCH
 
 ### ⭐공통 자격요건 및 우대사항 정리(특히  많이 중복된 것)⭐
 
